@@ -1,1 +1,1 @@
-# dekopinda-kota-sabang
+# dekopinda-karanganyar
